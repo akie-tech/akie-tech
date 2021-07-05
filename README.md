@@ -1,6 +1,6 @@
 <p >
 
-    🌱 I’m currently learning nothing.
+    🌱 Learn Everything i want.
 </p>
 
 
